@@ -1,2 +1,2 @@
-# 112_scientific_methods
-112 scientific methods for self-transformation.
+### Introduction
+This repository contains 112 simple text files, one for each of the 112 scientific methods for self-transformation described in [Vigyan Bhairav Tantra](https://en.wikipedia.org/wiki/Vij%C3%B1%C4%81na_Bhairava_Tantra). It then uses [this repository's Issues Section](https://github.com/Aytwit-Engineering/112_scientific_methods/issues) to tag each method and provide a way to create a discussion about everyone's personal experience.
