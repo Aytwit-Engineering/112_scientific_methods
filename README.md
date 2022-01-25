@@ -21,11 +21,6 @@ Before I came across the 112 methods, I practiced the aformentioned preparatory 
 
 From my very earliest investigations, I was always curious: how many different methods are there to meditate? Everyone seems to have their own method. What method or methods are right for me? Are there infinite possibilities or only a few? Are some of these methods bullshit?
 
-Regardless of my curiosity, clearly there were benefits. I became physically stronger and more flexible, more durable. I healed quicker and could push my body further. I picked up skills faster. Amazing ideas and insights would come to me, sometimes in trickles, sometimes in floods. I could see through bullshit that I always thought was real. I could distance myself from emotions easier. This was all great but also very uncomfortable, very disturbing. I could see clearly that the more disciplined I was, the more I practiced, the better life was. That's a lot of responsibility! It's easier to stay average, believe me. If I needed to be at my best for a job interview, or a competition, or get out of a slump, I could just practice some of these methods and I was good to go. Like I was popping a pill.
+Regardless of my confusion and even skepticism, clearly there were benefits. I became physically stronger and more flexible, more durable. I healed quicker and could push my body further. I picked up skills faster. Amazing ideas and insights would come to me, sometimes in trickles, sometimes in floods. I could see through bullshit that I always thought was real. I could distance myself from emotions more easily. Not just suppression, but like observing emotions as if they were happening to someone else. This was all great but also very uncomfortable, very disturbing. I could see clearly that the more disciplined I was, the more I practiced, the better life was. That's a lot of responsibility! It's easier to stay average, believe me. If I needed to be at my best for a job interview, or a competition, or get out of a slump, I could just practice some of these methods and I was good to go. Like I was popping a pill.
 
 But wait! I was trying to get away from popping pills! Or at least that's what I discovered along the way. I didn't want to simply be BETTER. Better is just a temporary reprieve. Then you have to be even more better to keep the ride going. Countless athletic champions will tell you of the intense depression that comes after achieving their dreams.
-
-
-
-
-
